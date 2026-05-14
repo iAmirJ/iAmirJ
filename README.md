@@ -39,7 +39,7 @@ A results-driven AI Engineer and Software Developer with a strong focus on build
 * **Email:** amirjaved1925@gmail.com
 * **LinkedIn:** linkedin.com/in/iamirj
 * **Phone:** +92 305 1925331
-* **Location:** Rawalpindi, Pakistan
+* **Location:** Rawalpindi/Islamabad, Pakistan
 
 ---
 
